@@ -1,0 +1,1 @@
+Doporučuji stáhnout celou složku
